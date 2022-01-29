@@ -18,7 +18,7 @@ Today's mood:
     Anyway, Happy New Year！Stay health and safe!
     
 
-At a age of 23, I do not dream big, but I make big wish.
+At the age of 23, I do not dream big, but I make big wish.
 My New Year wish is that the permanent cure for COVID can be invented, we can overcome the annoying pandemic and see each other's face in the near future.
 
 ![meme](https://user-images.githubusercontent.com/97417416/151649952-dd6d0e40-3524-4d77-9df0-15e2a2dd85fb.JPG)
