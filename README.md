@@ -8,7 +8,7 @@ I'm a feminist, I believe in girl's power.
 
 ![feminist](https://user-images.githubusercontent.com/97417416/151649915-7e98a631-ac77-40e6-9f68-4c1a318e7c07.JPG)
 
-Currently, I'm studying for my master's degree in Nanyang Technology University in Singpaore.
+Currently, I'm studying for my master's degree in Nanyang Technological University in Singpaore.
 
 ![NTU](https://user-images.githubusercontent.com/97417416/151649943-5aa3b204-9b8f-4b2c-afc5-901dd3a98021.jpeg)
 
